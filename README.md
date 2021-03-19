@@ -1,1 +1,1 @@
-# tenami-releases
+https://www.tenami.tv
